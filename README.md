@@ -9,10 +9,10 @@ As Team leader i declare that:
 
 
 
- xunan, aadi, sai doesnt do work
+ xunan doesnt do work
  
  
  
  
  
- instead kai xu does everything
+ instead kai xu, aadi, sai does everything
